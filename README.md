@@ -20,7 +20,7 @@ cross it off your active missions. This has something to do with the other activ
 the characters and/or places you're interacting with, and most importantly, the decisions you make.
 
 So, the best way to play this tarot game is organically, as you move through the rest of the game. You simply notice
-why you are there and who are you interacting with. Which brings us to...
+why you are there and who you are interacting with. Which brings us to...
 
 ## Who, Where and When
 
