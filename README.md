@@ -1,7 +1,9 @@
 # Cyberpunk 2077 Tarot
 
-Tarot card, archetype, knowledge held in symbolic form, a stage in your journey thorugh life - take your pick.
-One pick is, as Misty calls it "message from higher power" - CDPR.
+> Tarot card, archetype, knowledge held in symbolic form, a stage in your journey thorugh life - take your pick.
+One pick is, as Misty calls it "message from higher power"
+
+-- CDPR.
 
 It is done in a diegetic way as to not break immersion even though it does it to the 4th wall.
 CDPR is the all-knowing creator and these are subtle messages, symbols, nudges or just plain informative bits that may
