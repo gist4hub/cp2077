@@ -57,7 +57,7 @@ Here there are two interpretations from Misty's readings:
 > [after Playing for time] The Chariot. You're ready for change, ready to seek the truth about yourself. And to help, you'll have... Someone from you family?
 
 And here are the characters it will relate to: Jackie, Takemura, Judy, Panam, Johnny, Rogue. 
-But, as you might decide to see it: the chariot may as well be V, the one that is dragged through the story by those characters.
+But, as you might decide to see it, the chariot may as well be V, the one that is dragged through the story by those characters.
 You are the chariot, you are being lead by their specific stories and thus shape your own story through the game.
 
 
